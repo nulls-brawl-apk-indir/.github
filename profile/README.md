@@ -2,7 +2,8 @@
 
 Eğer **Brawl Stars** oynamayı seviyor ancak kavgacıları (brawlers), kostümleri ve elmasları toplamak için beklemekten hoşlanmıyorsanız, **Null’s Brawl** tam size göre! Bu özel **Brawl Stars sunucusu**, sınırsız elmas, altın, kavgacılar ve kostümler gibi tüm kaynakları **ücretsiz** ve **sınırsız** olarak sunar. **Null’s Brawl APK** sayesinde oyunun en keyifli halini yaşayabilir, hiçbir ücret ödemeden tüm içeriklere ulaşabilirsiniz.  
 
-Bu rehberde, **Null’s Brawl nedir, özellikleri nelerdir, nasıl indirilir** ve onu resmi oyundan farklı kılan şeyleri öğreneceksiniz.  
+Bu rehberde, **Null’s Brawl nedir, özellikleri nelerdir, nasıl indirilir** ve onu resmi oyundan farklı kılan şeyleri öğreneceksiniz. 
+
 ➡ **[Null’s Brawl APK İndir]**
 ---
 
