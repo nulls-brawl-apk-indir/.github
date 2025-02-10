@@ -1,4 +1,6 @@
 <html lang="tr">
+<head>
+  <meta http-equiv="Content-Language" content="tr">
 
 # Null’s Brawl APK İndir – Sınırsız Elmas, Tüm Kavgacılar ve Daha Fazlası!  
 
